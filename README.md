@@ -1,0 +1,2 @@
+# SIGED-certificado-secundaria-autenticacion-DICA940814HTLSLL02
+DICA940814HTLSLL02
